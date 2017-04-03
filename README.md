@@ -1,2 +1,0 @@
-# andela
-first day
